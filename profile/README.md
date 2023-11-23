@@ -4,7 +4,7 @@
 Welcome to BBHJ.  Thanks for you follow us!!
 
 
-**Here are some ideas to get you started:**
+**Here are some something to get you started:**
 
 - 🙋‍♀️ BBHJ is origin from [BaoBeiHuiJia](https://baobeihuijia.com). We are a non-profit team over the world.
 - 🌈 We are trying to support more and more NGO and charitable projects.
